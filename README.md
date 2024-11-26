@@ -1,2 +1,2 @@
 # Kaanaru
-lindo
+Tv Girl - Not Allowed
